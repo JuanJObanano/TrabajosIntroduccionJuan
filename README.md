@@ -1,2 +1,0 @@
-# TrabajosIntroduccionJuan
-proyecto
